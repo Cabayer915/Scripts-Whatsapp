@@ -75,6 +75,11 @@ Pegou a bola
 Botou debaixo do braço e foi pra cobrança de pênalti. 
 É gol do Corinthians!
 
+Vagner Love!
+Se encaminha pra bola,
+Paradinha!!!
+Demorou... demorou...
+E bateuuu
 Incrível e horrível cobrança. 
 Uma das piores cobranças que eu já vi de pênalti na minha vida. 
 Uma cobrança simplesmente lamentável. 
